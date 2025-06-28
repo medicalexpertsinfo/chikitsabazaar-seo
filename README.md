@@ -1,0 +1,17 @@
+https://www.chikitsabazaar.com/home
+https://www.chikitsabazaar.com/rental-service
+https://www.chikitsabazaar.com/about
+https://www.chikitsabazaar.com/career
+https://www.chikitsabazaar.com/contact
+https://www.chikitsabazaar.com/products
+https://www.chikitsabazaar.com/products
+https://www.chikitsabazaar.com/products/durable-medical-equipment-dme
+https://www.chikitsabazaar.com/products/treatment-equipment
+https://www.chikitsabazaar.com/products/life-support-equipment
+https://www.chikitsabazaar.com/products/medical-laboratory-equipment
+https://www.chikitsabazaar.com/products/therapeutic-equipment
+https://www.chikitsabazaar.com/products/patient-monitoring-equipment
+https://www.chikitsabazaar.com/products/surgical-equipment
+https://www.chikitsabazaar.com/products/emergency-and-trauma-equipment
+https://www.chikitsabazaar.com/products/medical-furniture
+[image](https://github.com/user-attachments/assets/159ef148-6bb4-47c2-b5a0-1a46a93e4e0e)
